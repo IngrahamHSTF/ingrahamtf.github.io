@@ -4,7 +4,7 @@ Jumps workouts are most helpful for Long Jump, Triple Jump, and High Jump.  They
 
 Jumps workouts build on top of [sprint workouts](sprint.html). Jumpers will typically replace some of the spint workout sets with jumping related activities.  
 
-## Apporach
+## Approach
 
 The approach or runup is an essential part of any of the jumping events (inlcuding high jump and vault). For long jump and triple jump it is a major factor in the performance of the event.  
 
