@@ -39,8 +39,26 @@ Improvising - if you do not have access to a runway or track you can still pract
 
 Rest between approach runs (2-3 minutes)
 
-## Pop-ups
+## Take-off
 
+The take-off is what makes a jump by tanslating horizontal motion to vertical motion.  The goal of the take of is to lauch yourself into the air. Points of the take off are:
+
+* Body posture
+* Knee and arm Drive
+* Gathering (lowering of weight before the jump)
+
+### Pop-ups
+
+Pop-ups are essential drills for all the jumping events.  In a pop-up the athlete takes off one leg and drives the opposite knee up to lauch the body into the air.  Gathering by lowering the senter of mass should occur one or two steps before the take-off.  
+
+Pop-ups are most often done into the sand pit or mats.  However you can do pop-ups anywhere where there is enough distance and headroom.  You can pop-up over barriers to encourage you to get height off the take-off.  To minimize the risk of injury if you are improvising:
+
+* do not overdo the run-up with too much speed
+* make sure the surface is dry and free from debris
+* do not take risks on hard surfaces such as concrete
+* use common sense when jumping over obstacles or across obstacles
+
+Pop-ups and similar jumping are a good way to build your ability.  
 
 
 
