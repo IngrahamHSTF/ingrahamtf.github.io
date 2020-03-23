@@ -1,6 +1,6 @@
 # Jumps Workouts
-[Return to workouts](index.html)
-Jumps workouts are most helpful for Long Jump, Triple Jump, and High Jump.  They will also be applicable to pole vault.  
+[Return to workouts](index.html)   
+Jumps workouts are for Long Jump, Triple Jump, and High Jump.  They will also be applicable to pole vault.  
 
 Jumps workouts build on top of [sprint workouts](sprint.html). Jumpers will typically replace some of the spint workout sets with jumping related activities.  
 
