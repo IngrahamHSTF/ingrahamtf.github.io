@@ -20,9 +20,9 @@ Many of you are aware that last Thursday was supposed to be the jamboree, and th
 * [Seattle Pulic Schools Coronavirus Page](https://www.seattleschools.org/district/calendars/news/what_s_new/coronavirus_update)
 * [The Washington Interscholastic Athletics Association](http://www.wiaa.com/)
 
-We have also included **SUGGESTED WORKOUT LINKS** and we will keep these updated weekly.
+We have also included [**SUGGESTED WORKOUT LINKS**](workouts/)and we will keep these updated weekly.
 
-Our hope is to soon have some sort of team-wide chat solution in place, so keep an eye out for that. But there is no need to wait for that. [Contact us if you have questions.](mailto:ingrahamtrackandfield@gmail.com) We still miss you!
+Our hope is to soon have some sort of team-wide chat solution in place, so keep an eye out for that. But there is no need to wait for that: [Contact us if you have questions.](mailto:ingrahamtrackandfield@gmail.com) We still miss you!
 
 
 # [Workouts](workouts/)
