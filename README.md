@@ -3,7 +3,7 @@
 ## March 24, 2020:
 
 Hello Rams Families and Athletes! 
-We hope that you are all hanging in there, and that you have been observing the social distancing rules we discussed in our last email. We understand that these can be incredibly annoying and difficult when compared to being at practice around friends and coaches, but these rules are one of the best hopes we have to stopping the spread of the disease. 
+We hope that you are all hanging in there, and that you have been observing the social distancing rules [we discussed in our last email.](https://docs.google.com/document/d/1zXROeFJsWg_fsIN58Cj_IMhjes37Ko1QJNk1jZ7IuYE/edit?usp=sharing) We understand that these can be incredibly annoying and difficult when compared to being at practice around friends and coaches, but these rules are one of the best hopes we have to stopping the spread of the disease. 
 
 Last night, the Governor issued a "Stay at Home" order. For many of us, this meant little change to how we had been conducting ourselves before it was issued, since it makes certain suggested practices "the law" for now. 
 
@@ -17,8 +17,8 @@ You are not entirely locked down, as long as you make sure to give people 6 feet
 
 Many of you are aware that last Thursday was supposed to be the jamboree, and this week was supposed to be our first meet. It's been strange navigating this time of year without spending time with you all at these events and at daily practices. It's even stranger not knowing what comes next. The best we can do to facilitate the return of the season, is follow the instructions to stay/keep others healthy, and support those in need. If you are interested in further news, we have included these links:
 
-[Seattle Pulic Schools Coronavirus Page](https://www.seattleschools.org/district/calendars/news/what_s_new/coronavirus_update)
-[The Washington Interscholastic Athletics Association](http://www.wiaa.com/)
+* [Seattle Pulic Schools Coronavirus Page](https://www.seattleschools.org/district/calendars/news/what_s_new/coronavirus_update)
+* [The Washington Interscholastic Athletics Association](http://www.wiaa.com/)
 
 We have also included **SUGGESTED WORKOUT LINKS** and we will keep these updated weekly.
 
