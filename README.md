@@ -7,7 +7,7 @@ We hope that you are all hanging in there, and that you have been observing the 
 
 Last night, the Governor issued a "Stay at Home" order. For many of us, this meant little change to how we had been conducting ourselves before it was issued, since it makes certain suggested practices "the law" for now. 
 
-The order is available to read in full [at this link])https://www.governor.wa.gov/sites/default/files/proclamations/20-25%20Coronovirus%20Stay%20Safe-Stay%20Healthy%20%28tmp%29%20%28002%29.pdf)
+The order is available to read in full [at this link](https://www.governor.wa.gov/sites/default/files/proclamations/20-25%20Coronovirus%20Stay%20Safe-Stay%20Healthy%20%28tmp%29%20%28002%29.pdf)
 
 "Stay Home - Stay Healthy" can sound somewhat intense and depressing when you are feeling like you need to get out for a run, but the order does allow for you to do just that. Staying healthy is, in fact, considered an "essential activity." 
 
