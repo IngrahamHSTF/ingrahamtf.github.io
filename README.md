@@ -15,7 +15,12 @@ The order is available to read in full [at this link](https://www.governor.wa.go
 
 You are not entirely locked down, as long as you make sure to give people 6 feet of space, and you are not gathering in groups, and **your parents approve of leaving the house to do these things.** (The governor didn't have you specifically in mind when he issued the order, but we do when we discuss it. Listen to your parents!)
 
+Many of you are aware that last Thursday was supposed to be the jamboree, and this week was supposed to be our first meet. It's been strange navigating this time of year without spending time with you all at these events and at daily practices. It's even stranger not knowing what comes next. The best we can do to facilitate the return of the season, is follow the instructions to stay/keep others healthy, and support those in need. If you are interested in further news, we have included these links:
 
+[Seattle Pulic Schools Coronavirus Page](https://www.seattleschools.org/district/calendars/news/what_s_new/coronavirus_update)
+[The Washington Interscholastic Athletics Association](http://www.wiaa.com/)
+
+We have also included **SUGGESTED WORKOUT LINKS** and we will keep these updated weekly.
 
 # [Workouts](workouts/)
 Ideas for workouts for various events are posted in the [Workouts](workouts/) section.  
