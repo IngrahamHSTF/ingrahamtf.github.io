@@ -22,6 +22,9 @@ Many of you are aware that last Thursday was supposed to be the jamboree, and th
 
 We have also included **SUGGESTED WORKOUT LINKS** and we will keep these updated weekly.
 
+Our hope is to soon have some sort of team-wide chat solution in place, so keep an eye out for that. But there is no need to wait for that. [Contact us if you have questions.](mailto:ingrahamtrackandfield@gmail.com) We still miss you!
+
+
 # [Workouts](workouts/)
 Ideas for workouts for various events are posted in the [Workouts](workouts/) section.  
 
