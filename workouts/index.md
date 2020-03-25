@@ -26,3 +26,4 @@ Take a look at the jumps workouts in [sprints/jumps/hurdles workouts google doc]
 
 
 ## Throws Workouts
+We are working on this, and should have something soon!
