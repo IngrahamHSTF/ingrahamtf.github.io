@@ -1,6 +1,6 @@
 # Ingraham Track and Field
 
-## March 24, 2020:
+## March 25, 2020:
 
 Hello Rams Families and Athletes! 
 We hope that you are all hanging in there, and that you have been observing the social distancing rules [we discussed in our last email.](https://docs.google.com/document/d/1zXROeFJsWg_fsIN58Cj_IMhjes37Ko1QJNk1jZ7IuYE/edit?usp=sharing) We understand that these can be incredibly annoying and difficult when compared to being at practice around friends and coaches, but these rules are one of the best hopes we have to stopping the spread of the disease. 
