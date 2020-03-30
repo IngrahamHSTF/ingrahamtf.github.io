@@ -1,4 +1,3 @@
-# [Ingraham Track and Field](../)
 # Track Workouts
 
 > **COVID-19 Note:** PLEASE HEED THE INSTRUCTIONS WE HAVE DISCUSSED ABOUT SOCIAL DISTANCING!
