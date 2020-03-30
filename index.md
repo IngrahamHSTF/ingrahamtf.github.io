@@ -1,5 +1,5 @@
 ---
-title: Ingraham Track and Field News
+title: Ingraham Track and Field
 ---
 
 # Ingraham Track and Field News
