@@ -2,7 +2,7 @@
 title: Ingraham Track and Field
 ---
 
-# Ingraham Track and Field News
+# News
 ## March 25, 2020:
 
 Hello Rams Families and Athletes! 
