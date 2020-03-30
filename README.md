@@ -1,4 +1,4 @@
-# Ingraham Track and Field
+
 
 ## March 25, 2020:
 
