@@ -1,3 +1,5 @@
+# EDIT THE index.md FILE TO CHANGE THE LANDING PAGE
+
 # Ingraham Track and Field News
 ## March 25, 2020:
 
