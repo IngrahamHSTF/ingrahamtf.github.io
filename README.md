@@ -10,11 +10,13 @@ I just wanted to say, I miss you all. For the first time in 14 years, I am not h
 
 **Here are some updates:**
 * What's new with the season?
-  * With the federal government mentioning social distancing should be in place until the end of april, there is still a lot of uncertainty. Some experts that Washington State has been consulting with have recommended social distancing until at least the end of May.
-  * The WIAA seems committed to making a season happen if we resume in late april/early may. They can’t push back the dates of championship meets any more than they were already, due to graduation conflicts.
+  * With the federal government mentioning social distancing should be in place until the end of April, there is still a lot of uncertainty. Some experts that Washington State has been consulting with have recommended social distancing until at least the end of May.
+  * The WIAA seems committed to making a season happen if we resume in late April/early May. They can’t push back the dates of championship meets any more than they were already, due to graduation conflicts.
 * Athetes:
   * Our new GroupMe seems to be getting a lot of members. If you are not a member, check your email for details.
   * We want to keep the the tradition of "Athlete of the Week" alive at this time, so we are starting a weekly contest. Details in email.
+
+Remember: [Current workouts can be found here.](workouts/)
 
 ## March 25, 2020:
 
