@@ -6,7 +6,7 @@
 
 Hello once again!
 
-I just wanted to say, I miss you all. For the first time in 14 years, I am not hanging with Rams in the afternoon during Track season, and it's a super-odd feeling. This is a weird, crazy, terrible, slow-motion tragedy, and I want you to know I hope you all are okay. Please stay safe.
+I just wanted to say, I miss you all. For the first time in 14 years, I am not hanging with Rams in the afternoon during Track season, and it's a super-odd feeling. This is a weird, crazy, terrible, slow-motion tragedy, and I want you to know I hope you all are okay. Please stay safe!
 
 **Here are some updates:**
 * What's new with the season?
