@@ -4,6 +4,31 @@ title: Ingraham Track and Field
 
 # News
 
+## April 9, 2020:
+
+So, by now, you have all heard the news. The current tragic situation has led to the cancellation of the 2020 Spring Sports Season. There are obviously very sound reasons for the decisions that led to this, but I am sure that they don’t feel as awesome as they might if they hadn’t impacted the end of the school year and a T&F season that many of you had very much looked forward to.
+
+It's a shame, especially for the Seniors on the team. I remember many of you as Freshmen, and a few of you from even earlier. Each and every one of you is delightful. One of the best days of the year, hands down, is Graduation, and I am truly sad that we can't celebrate you the same way we have with others in the past.
+
+What now? Well, first and foremost, STAY SAFE. Do what is safest for you and others. Beyond that, we gave the team two main ideas the other day:
+
+1. Continue training to keep some semblance of sanity in this truly insane time. Physical activity is good for your mental health/regular health.
+
+2. I can’t look too far into the future, but let’s plan for this to be contained by this Fall, and assume that Fall Sports are still happening. You have been given a weird opportunity to spend extra time getting ready for them. Reach out to your Fall coaches and I’m sure they can be of assistance. If you are unsure how to contact a specific coach, contact me, and I can help with that. I have contacts for all of them (and am even one of them.)
+
+Us T&F coaches will continue to support kids in any way possible, and keep workouts up to date here for a little while longer. There are a number of terrific online time trials/competitions that Coach Meg let the team know about, and plenty of space to do those and keep distant.
+
+I will add in another, third, thought about things to do at this time, and that is: **support each other.** It has been said that “sociability is the greatest advantage in the struggle for life.” And, it has been incredible to see the many ways people have reached out to one another in this time of great uncertainty, despite being socially distant. It has been difficult to see things like the school year, and the season, pass out of reach, and to experiemce a set of emotions that are probably pretty new to most of us.
+
+There are a set of reasons that you chose to come down to the track each afternoon after school, despite knowing how abysmal the weather in Seattle in March can be. You, as a group, make this thing we do incredibly worthwhile, and, I urge you to find ways to carry that spirit with you through this tough time. Reach out to each other, strengthen the bonds that you have grown, and find ways to make new ones. So little of this time may make sense emotionally, but together, you can help each other navigate it. I know that you can, and hope that you do. 
+
+While we are on the subject of people who support each other, and do amazing things, I want to say thank you to the Coaches this season: Mike, Joe, Josh, Meg, Sarah, and Doug. I am sad to be robbed of more afternoons with you. And, the Captains: Aidan, Anja, Rodrick, Siri, Nash, and Natalie, you are a terrific group, and I was jazzed to see what you had in store for the team. If you are reading this, and you can reach out to these people and give them some sort of 2020 pandemic version of a high-five, I am sure they would appreciate it. They are great. 
+
+The coaches will keep this site up to date, and continue to let you know when we do. If you are a returning student looking to reach out to a Fall coach for guidance, as I said before, let me know if you need any contact info. We of course still will take workout photos for our Athlete of the Week Contest until the end of May, and will distribute prizes at the end of this all check your email for those details.
+
+Keep being awesome, keep lifting each other up. Keep being Rams.
+
+
 ## March 31, 2020:
 
 Hello once again!
