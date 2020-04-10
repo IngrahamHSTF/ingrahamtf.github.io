@@ -14,7 +14,7 @@ What now? Well, first and foremost, STAY SAFE. Do what is safest for you and ot
 
 1. Continue training to keep some semblance of sanity in this truly insane time. Physical activity is good for your mental health/regular health.
 
-2. I can’t look too far into the future, but let’s plan for this to be contained by this Fall, and assume that Fall Sports are still happening. You have been given a weird opportunity to spend extra time getting ready for them. Reach out to your Fall coaches and I’m sure they can be of assistance. If you are unsure how to contact a specific coach, contact me, and I can help with that. I have contacts for all of them (and am even one of them.)
+2. I can’t look too far into the future, but let’s plan for this to be contained by this Fall, and assume that Fall Sports are still happening. You have been given a weird opportunity to spend extra time getting ready for them. Reach out to your Fall coaches and I’m sure they can be of assistance. If you are unsure how to contact a specific coach, [contact me](mailto:ingrahamtrackandfield@gmail.com), and I can help with that. I have contacts for all of them (and am even one of them.)
 
 Us T&F coaches will continue to support kids in any way possible, and keep workouts up to date here for a little while longer. There are a number of terrific online time trials/competitions that Coach Meg let the team know about, and plenty of space to do those and keep distant.
 
@@ -24,10 +24,11 @@ There are a set of reasons that you chose to come down to the track each afterno
 
 While we are on the subject of people who support each other, and do amazing things, I want to say thank you to the Coaches this season: Mike, Joe, Josh, Meg, Sarah, and Doug. I am sad to be robbed of more afternoons with you. And, the Captains: Aidan, Anja, Rodrick, Siri, Nash, and Natalie, you are a terrific group, and I was jazzed to see what you had in store for the team. If you are reading this, and you can reach out to these people and give them some sort of 2020 pandemic version of a high-five, I am sure they would appreciate it. They are great. 
 
-The coaches will keep this site up to date, and continue to let you know when we do. If you are a returning student looking to reach out to a Fall coach for guidance, as I said before, let me know if you need any contact info. We of course still will take workout photos for our Athlete of the Week Contest until the end of May, and will distribute prizes at the end of this all check your email for those details.
+The coaches will keep this site up to date, and continue to let you know when we do. If you are a returning student looking to reach out to a Fall coach for guidance, as I said before, [let me know](mailto:ingrahamtrackandfield@gmail.com) if you need any contact info. We of course still will take workout photos for our Athlete of the Week Contest until the end of May, and will distribute prizes at the end of this all check your email for those details.
 
 Keep being awesome, keep lifting each other up. Keep being Rams.
 
+- Coach Swift
 
 ## March 31, 2020:
 
