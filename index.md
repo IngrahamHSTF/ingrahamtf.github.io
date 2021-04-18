@@ -4,6 +4,48 @@ title: Ingraham Track and Field
 
 # News
 
+## April 18, 2021
+
+We back! Track practice starts again tomorrow April 19, 2021.  Of course things are going to be a bit different this season.  Here are a few highlights.
+
+**__PLEASE DO NOT WORRY IF YOU CAN’T ATTEND IN PERSON THIS SEASON.__**  We would love to see you, but not if it causes you or those you love extra anxiety or stress.  Seriously, no one will think any less of you if you can’t. New Athlete or Veteran, Freshman, Sophomore, Junior or Senior, Captain or Coach, we still love you regardless of what you decide.
+
+### Practices
+
+**A. Required for Practices**
+4 SPS Requirements: 
+
+* Athlete must fill out and sign documents on Final Forms
+* Parent must fill out and sign documents on Final Forms 
+* have a current physical uploaded.  https://seattleschools-wa.finalforms.com/   
+* There is also a $25 athletics fee.  This is paid through SchoolPay.  There is a direct link to schoolpay from within FinalForms (in the Sports Registration “Form”)
+
+**B. COVID Protocols at Practice**
+
+* **IF YOU HAVE ANY SYMPTOMS OR YOU HAVE HAD A CONFIRMED EXPOSURE YOU MUST REACH OUT TO THE COACHES BEFORE COMING TO PRACTICE.**
+* Athletes will be checked in and screened for COVID symptoms by either a coach or a school official when you arrive at practice.
+* Masks are mandatory during practice.    
+* Social distancing (6’ between athletes / coaches) will be observed.
+* Injury concerns: please check in with a coach first.  You will then most likely be directed to the Athletic Trainer, Jeff Wilson.  You then must check back in with a coach.   
+
+**C. What to Bring**
+* Water bottle (required), Your own snacks
+* 2 Masks (2nd one optional but encouraged).  SOOO much more pleasant to have a dry mask for post run cool-down.  
+
+**D. Location**
+* Ingraham - Meet at Track Shed (SE corner of track)  
+
+**E.  Start / End Times**
+All athletes are expected to be at practice and meeting with their main event group at 4pm. 
+Coaches will check your temperatures and have you sign attestation forms when you arrive 
+Practice officially ends at 6:00pm but you are allowed to leave once your workout (including cooldown exercises) is done and you’ve checked in with a coach.   
+   
+**F.   Training Plan**
+Training plans are TBD links on this site are probably outdated. 
+
+
+# Old News Below
+
 ## April 9, 2020:
 
 So, by now, you have all heard the news. The current tragic situation has led to the cancellation of the 2020 Spring Sports Season. There are obviously very sound reasons for the decisions that led to this, but I am sure that they don’t feel as awesome as they might if they hadn’t impacted the end of the school year and a T&F season that many of you had very much looked forward to.
