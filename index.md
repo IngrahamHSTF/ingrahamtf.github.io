@@ -8,17 +8,17 @@ title: Ingraham Track and Field
 
 We back! Track practice starts again tomorrow April 19, 2021.  Of course things are going to be a bit different this season.  Here are a few highlights.
 
-**__PLEASE DO NOT WORRY IF YOU CAN’T ATTEND IN PERSON THIS SEASON.__**  We would love to see you, but not if it causes you or those you love extra anxiety or stress.  Seriously, no one will think any less of you if you can’t. New Athlete or Veteran, Freshman, Sophomore, Junior or Senior, Captain or Coach, we still love you regardless of what you decide.
+**PLEASE DO NOT WORRY IF YOU CAN’T ATTEND IN PERSON THIS SEASON.**  We would love to see you, but not if it causes you or those you love extra anxiety or stress.  Seriously, no one will think any less of you if you can’t. New Athlete or Veteran, Freshman, Sophomore, Junior or Senior, Captain or Coach, we still love you regardless of what you decide.
 
 ### Practices
 
 **A. Required for Practices**
 4 SPS Requirements: 
 
-* Athlete must fill out and sign documents on Final Forms
-* Parent must fill out and sign documents on Final Forms 
-* have a current physical uploaded.  https://seattleschools-wa.finalforms.com/   
-* There is also a $25 athletics fee.  This is paid through SchoolPay.  There is a direct link to schoolpay from within FinalForms (in the Sports Registration “Form”)
+* Athlete must fill out and sign documents on [FinalForms](https://seattleschools-wa.finalforms.com/)
+* Parent must fill out and sign documents on [FinalForms](https://seattleschools-wa.finalforms.com/)
+* have a current physical uploaded to  [FinalForms](https://seattleschools-wa.finalforms.com/)   
+* There is also a $25 athletics fee.  This is paid through SchoolPay.  There is a direct link to schoolpay from within [FinalForms](https://seattleschools-wa.finalforms.com/) (in the Sports Registration “Form”)
 
 **B. COVID Protocols at Practice**
 
@@ -35,14 +35,39 @@ We back! Track practice starts again tomorrow April 19, 2021.  Of course things 
 **D. Location**
 * Ingraham - Meet at Track Shed (SE corner of track)  
 
-**E.  Start / End Times**
-All athletes are expected to be at practice and meeting with their main event group at 4pm. 
+**E. Start / End Times**
+* 4PM Start - All athletes are expected to be at practice and meeting with their main event group at 4pm. 
 Coaches will check your temperatures and have you sign attestation forms when you arrive 
-Practice officially ends at 6:00pm but you are allowed to leave once your workout (including cooldown exercises) is done and you’ve checked in with a coach.   
+* 6PM Finish - Practice officially ends at 6:00pm but you are allowed to leave once your workout (including cooldown exercises) is done and you’ve checked in with a coach.   
    
-**F.   Training Plan**
+**F. Training Plan**
+
 Training plans are TBD links on this site are probably outdated. 
 
+### COVID TRAVEL PROTOCOL
+Travel quarantine guidelines are different than exposure related/contact tracing guidelines.   The Governor is recommending that all travelers follow the CDC guidelines for travel. <https://www.cdc.gov/coronavirus/2019-ncov/travelers/travel-during-covid19.html?utm_medium=email&utm_source=govdelivery>
+ 
+To ensure the safety of students, staff, and families, we are recommending that students not travel during their sports season.  If students do travel and return to Washington State, it is recommended that they quarantine for up to 10 days.  To return sooner than 10 days a student must show a negative COVID test after returning home but must wait for 3-5 days prior to testing.  The CDC guidelines for testing after travel are as follows 
+<https://www.cdc.gov/coronavirus/2019-ncov/travelers/images/Testing-after-travel_1200x675.jpg>: 
+* Get tested 3-5 days after you travel.
+* If you test NEGATIVE… 
+    * Stay home for 7 days and self-quarantine
+    * Watch for symptoms of Covid-19
+    * Take precautions to protect others
+* If you test POSITIVE or develop symptoms of covid-19… 
+    * Do NOT travel
+    * Immediately isolate yourself
+    * Follow public health recommendations
+* If you don’t get tested… 
+    * Stay home for 10 days and self-quarantine
+    * Watch for symptoms of covid-19
+    * Take precautions to protect others
+
+If you fly to the US from a foreign country, you must provide a negative COVID-19 test result or documentation of recovery from COVID-19 before boarding your flight.
+Also, take these actions after you return from travel to protect others from getting COVID-19:
+Avoid crowds and stay at least 6 feet/2 meters (about 2 arm lengths) from anyone who did not travel with you. It’s important to do this everywhere — both indoors and outdoors.
+
+___
 
 # Old News Below
 
