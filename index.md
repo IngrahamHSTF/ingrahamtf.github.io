@@ -44,7 +44,7 @@ Coaches will check your temperatures and have you sign attestation forms when yo
 
 Training plans are TBD links on this site are probably outdated. 
 
-### COVID TRAVEL PROTOCOL
+### COVID Travel Protocol
 Travel quarantine guidelines are different than exposure related/contact tracing guidelines.   The Governor is recommending that all travelers follow the CDC guidelines for travel. <https://www.cdc.gov/coronavirus/2019-ncov/travelers/travel-during-covid19.html?utm_medium=email&utm_source=govdelivery>
  
 To ensure the safety of students, staff, and families, we are recommending that students not travel during their sports season.  If students do travel and return to Washington State, it is recommended that they quarantine for up to 10 days.  To return sooner than 10 days a student must show a negative COVID test after returning home but must wait for 3-5 days prior to testing.  The CDC guidelines for testing after travel are as follows 
